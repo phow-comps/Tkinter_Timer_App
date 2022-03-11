@@ -15,3 +15,4 @@ Here is the discord event for this competition: https://discord.gg/qDCNja3B?even
 Good Luck ☃️  
 
 Demo Video: https://cdn.discordapp.com/attachments/862330721413890078/933675270735552572/Screen_Recording_2022-01-20_at_9.47.26_pm.mov
+<img width="568" alt="image" src="https://user-images.githubusercontent.com/94343390/157856897-efd2a6b9-801e-4ce7-aeb1-429e3f8987f7.png">
