@@ -13,3 +13,5 @@ Here is the discord event for this competition: https://discord.gg/qDCNja3B?even
 🍁 The Competition ends January 27th, 5pm AEDT
 
 Good Luck ☃️  
+
+https://cdn.discordapp.com/attachments/862330721413890078/933675270735552572/Screen_Recording_2022-01-20_at_9.47.26_pm.mov
